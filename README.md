@@ -6,7 +6,7 @@
 <img width="1531" height="1000" alt="tumblr_fb2f1cdf534afe456c4b57563797c87b_304beb0c_2048" src="https://github.com/user-attachments/assets/c8d63edc-bab0-4d55-a958-dbd590af2691" />
 
 <div align="center">
-<a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=50&duration=1&pause=5000&color=FFBCCD&center=true&vCenter=true&repeat=false&width=625&lines=Welcome+to+My+Garden+of+Sloth!!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=50&duration=1&pause=5000&color=F4DFE6&center=true&vCenter=true&repeat=false&width=625&lines=Welcome+to+My+Garden+of+Sloth!!" alt="Typing SVG" /></a>
   </div>
   <br>
 <div align="center">
@@ -17,7 +17,7 @@
 <img width="50" height="50" alt="tumblr_f2794f335d429dd6601bf3e9c507cef6_b7cf6757_75" src="https://github.com/user-attachments/assets/36a2ba9e-f2f3-424a-9fc4-607fbf40c80a" />
 <br>
 <br>
-<p align="center"> $\textcolor{#fc809f}{\text{“ My dear, you deserve a moment of rest! ”}}$
+<p align="center"> $\textcolor{#f8dede}{\text{“ My dear, you deserve a moment of rest! ”}}$
 </p>
 
 <div align="center">
