@@ -1,42 +1,23 @@
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/3ebb0b75-bcc7-4926-b94f-4981043473a8"/>
-  </p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/1ea5b235-4910-4844-bae6-1a8398d990bd"/>
-  </p>
-  <p align="center">
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/b67a1291-e3f5-4983-bfd2-80d8ac21f4a0"/>
+
+<a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=50&duration=1&pause=5000&color=FFBCCD&center=true&vCenter=true&repeat=false&width=625&lines=Welcome+to+My+Garden+of+Sloth!!" alt="Typing SVG" /></a>
+  </div>
+
+<div align="center">
   <img src="https://github.com/user-attachments/assets/321c33a3-b0d1-46ee-b42d-382f2a49f555"/>
-<img src="https://komarev.com/ghpvc/?username=gingersbakery&label=angels+𖹭&color=FFBCCE&style=plastic"/>
+<img src="https://komarev.com/ghpvc/?username=Y4tta&label=angels+໒꒱&color=FFBCCE&style=plastic"/>
   <img src="https://github.com/user-attachments/assets/321c33a3-b0d1-46ee-b42d-382f2a49f555"/>
-  </p>
-<p align="center">
+
+  <sub> Credits for this entire layout!⠀~ ⠀[💞](https://www.tumblr.com/yumelette/784478479171338240/eternal-sugar-cookie-rentry-graphic-f2u-w?source=share) ⠀ [💗](https://www.tumblr.com/st0rmysgraphicz/783611801484001280/can-you-do-an-eternal-sugar-cookie-tumblr-layout?source=share) ⠀  [💞](https://www.tumblr.com/gokurakuqai/794271227087831040/%E3%85%A4-%F0%93%8E%9F%F0%93%8E%9F-eternal-sugar?source=share) ⠀ [💗](https://www.tumblr.com/pearlieprincess/782573243101052928?source=share)  ⠀ [💞](https://www.tumblr.com/pitfall-bakery/783293935363719168/free-to-eat-with-credit-free-to-use-with?source=share)
   <img src="https://github.com/user-attachments/assets/fdc7881a-7595-4a45-880f-dc4dac7ea74e"/>
-</p>
-<p align="center">
-  <a href="https://gingersbakery.atabook.org/">ᥲ𝗍ᥲᑲ᥆᥆k</a>⠀ 𖹭 ⠀
-  <a href="https://rentry.co/gingersbakery">rᥱᥒ𝗍rᥡ</a>⠀ 𖹭 ⠀
-  <a href="https://en.pronouns.page/@cookiebakery">ᥱᥒ.⍴r᥆ᥒ᥆ᥙᥒs</a>
-</p>
-<p align="center">
+
+  <img width="1531" height="1000" alt="tumblr_fb2f1cdf534afe456c4b57563797c87b_304beb0c_2048" src="https://github.com/user-attachments/assets/6d345235-77d7-45e6-aeef-18067a2050b1" />
+
   <img src="https://github.com/user-attachments/assets/dcbf3899-ebdd-43bc-a4dd-28fddb806e0e"/>
-  </p>
-<p align="center">
+
   <img src="https://github.com/user-attachments/assets/1b41fdb1-c262-4d64-a2fa-0479c2e714b0"/>
   <img src="https://github.com/user-attachments/assets/2f702387-9ed9-440f-839e-8bac3092b32e"/>
   <img src="https://github.com/user-attachments/assets/3bd223f3-814f-49a4-820d-62b78fe420ad"/>
-  </p>
-<p align="center">
+
   <img src="https://github.com/user-attachments/assets/fdc7881a-7595-4a45-880f-dc4dac7ea74e"/>
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/9a8cf1ad-4d84-4393-84ce-22197ceab84d"/>
-</p>
-<p align="center">
-  I forgot the credits... Ill add them later...
-</p>
-<p align="center">
-anyways, go to my main byi!
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/fdc7881a-7595-4a45-880f-dc4dac7ea74e"/>
-</p>
