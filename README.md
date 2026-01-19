@@ -9,7 +9,7 @@
 <img src="https://komarev.com/ghpvc/?username=Y4tta&label=angels+໒꒱&color=FFBCCE&style=plastic"/>
   <img src="https://github.com/user-attachments/assets/321c33a3-b0d1-46ee-b42d-382f2a49f555"/>
 
-  <sub> Credits for this entire layout!⠀~ ⠀[💞](https://www.tumblr.com/yumelette/784478479171338240/eternal-sugar-cookie-rentry-graphic-f2u-w?source=share) ⠀ [💗](https://www.tumblr.com/st0rmysgraphicz/783611801484001280/can-you-do-an-eternal-sugar-cookie-tumblr-layout?source=share) ⠀  [💞](https://www.tumblr.com/gokurakuqai/794271227087831040/%E3%85%A4-%F0%93%8E%9F%F0%93%8E%9F-eternal-sugar?source=share) ⠀ [💗](https://www.tumblr.com/pearlieprincess/782573243101052928?source=share)  ⠀ [💞](https://www.tumblr.com/pitfall-bakery/783293935363719168/free-to-eat-with-credit-free-to-use-with?source=share)
+  <sub> Credits for this entire layout!⠀~ ⠀[💞](https://www.tumblr.com/yumelette/784478479171338240/eternal-sugar-cookie-rentry-graphic-f2u-w?source=share) ⠀ [💗](https://www.tumblr.com/st0rmysgraphicz/783611801484001280/can-you-do-an-eternal-sugar-cookie-tumblr-layout?source=share) ⠀ [💞](https://www.tumblr.com/pearlieprincess/782573243101052928?source=share)  ⠀ [💗](https://www.tumblr.com/pitfall-bakery/783293935363719168/free-to-eat-with-credit-free-to-use-with?source=share)
   <img src="https://github.com/user-attachments/assets/fdc7881a-7595-4a45-880f-dc4dac7ea74e"/>
 
   <img width="1531" height="1000" alt="tumblr_fb2f1cdf534afe456c4b57563797c87b_304beb0c_2048" src="https://github.com/user-attachments/assets/6d345235-77d7-45e6-aeef-18067a2050b1" />
