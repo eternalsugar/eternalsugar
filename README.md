@@ -13,7 +13,12 @@
   <img src="https://github.com/user-attachments/assets/fdc7881a-7595-4a45-880f-dc4dac7ea74e"/>
 
   <img width="1531" height="1000" alt="tumblr_fb2f1cdf534afe456c4b57563797c87b_304beb0c_2048" src="https://github.com/user-attachments/assets/6d345235-77d7-45e6-aeef-18067a2050b1" />
+</div>
+<br>
+<p align="center"> $\textcolor{#fc809f}{\text{“ My dear, you deserve a moment of rest! ”}}$
+</p>
 
+<div align="center">
   <img src="https://github.com/user-attachments/assets/dcbf3899-ebdd-43bc-a4dd-28fddb806e0e"/>
 
   <img src="https://github.com/user-attachments/assets/1b41fdb1-c262-4d64-a2fa-0479c2e714b0"/>
