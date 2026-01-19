@@ -17,9 +17,10 @@
 <img width="50" height="50" alt="tumblr_f2794f335d429dd6601bf3e9c507cef6_b7cf6757_75" src="https://github.com/user-attachments/assets/36a2ba9e-f2f3-424a-9fc4-607fbf40c80a" />
 <br>
 <br>
-<p align="center"> $\textcolor{#f8dede}{\text{“ My dear, you deserve a moment of rest! ”}}$
-</p>
+<div align="center ">
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=20&duration=2500&pause=500&color=F8DEDE&background=FFFFFF00&center=true&multiline=true&repeat=false&width=435&lines=%22+I'll+make+you+a+happy+cookie+.+.+.;FOREVER+!!+%22)](https://git.io/typing-svg)
+</div>
 <div align="center">
   <img src="https://github.com/user-attachments/assets/dcbf3899-ebdd-43bc-a4dd-28fddb806e0e"/>
 
