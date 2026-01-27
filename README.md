@@ -13,7 +13,7 @@
 <img width="50" height="50" alt="tumblr_101ecd8191fa3a321b2275b5f816745f_7995cc7b_75" src="https://github.com/user-attachments/assets/940881e6-5f9d-4d54-aaab-1e0ebabb32f6" />
 <img src="https://komarev.com/ghpvc/?username=Y4tta&label=garden+visitors+໒꒱&color=FFBCCE&style=plastic"/>
 <img src="https://github.com/user-attachments/assets/913f7e8b-c9a6-4894-ae8e-df3de5220c45">
-<img alt="GitHub followers" src="https://img.shields.io/github/followers/AngeIware?style=plastic&label=sugar+angels&labelColor=pink&color=white">
+<img alt="GitHub followers" src="https://img.shields.io/github/followers/eternalsugar?style=plastic&label=sugar+angels&labelColor=pink&color=white">
 <img width="50" height="50" alt="tumblr_f2794f335d429dd6601bf3e9c507cef6_b7cf6757_75" src="https://github.com/user-attachments/assets/36a2ba9e-f2f3-424a-9fc4-607fbf40c80a" />
 <br>
 <br>
